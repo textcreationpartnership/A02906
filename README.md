@@ -36,23 +36,23 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-Baleus prolocutorIF profyght maye growe, most Christē audyēce.By knowlege of thynges, whych are 〈…Pater coelestis.IN the begynnynge, before the heauens were create,In me and of me, was my sonne sēm
-1. Actus secundus.
+Baleus prolocutorIF profyght maye growe, most Christē audyēce.By knowlege of thynges, whych are 〈…Baleus prolocutorIF profyght maye growe, most Christē audyēce.By knowlege of thynges, whych are 〈…Pater coelestis.IN the begynnynge, before the heauens were create,In me and of me, was my sonne sēm
+    _ Actus secundus.
 
-1. Incipit actus tertius.
+    _ Incipit actus tertius.
 
-1. Incipit actus Quartus.
+    _ Incipit actus Quartus.
 
-1. Incipit actus quintus.
+    _ Incipit actus quintus.
 
-1. Incipit actus sextus.
+    _ Incipit actus sextus.
 
-1. Actus Septimus.
+    _ Actus Septimus.
 
-1. Baleus Prolocutor.
+    _ Baleus Prolocutor.
 
 #####Back#####
-[A tragedye or enterlude manyfestyng the chefe promyses of God unto man by all ages in the olde lawe
+Thus endeth thys Tragedy or enterlude manyfestynge the chefe promyses of God vnto Man by all ages in
 **Types of content**
 
   * There are 907 **verse** lines!
